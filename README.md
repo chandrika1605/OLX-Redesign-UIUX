@@ -1,1 +1,1 @@
-# OLX-Redesign-UIUX
+# UIUX-INTERNSHIP
